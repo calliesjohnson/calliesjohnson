@@ -1,5 +1,5 @@
 ### Hi there 👋
-Excited to start my journey here as one of the Hubbers! <3 A few things about me is that I love 
+Excited to start my journey here as one of the Hubbers! <3 A few things about me are that I love 
 Scuba Diving, 
 I have a dog named Remington (he resembles a capybara lol), 
 Tennis, 
