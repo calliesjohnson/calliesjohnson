@@ -2,7 +2,7 @@
 Excited to start my journey here as one of the Hubbers! <3 A few things about me are that I love 
 scuba diving,  
 tennis, 
-swimming, traveling, and I have a dog named Remington (he resembles a capybara lol),
+swimming, traveling, and I have a dog named Remington (he resembles a capybara lol).
 
 <!--
 **calliesjohnson/calliesjohnson** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
